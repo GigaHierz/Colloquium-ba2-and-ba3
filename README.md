@@ -1,4 +1,4 @@
-# Resume of Thoughts During the Colloqium
+# Resume of Thoughts During the Colloquium
 
 ## Questions and concerns about our community and its institutions Colloquium BA2 & BA3
 ### by PaulA Hierzi, Maria Ladopoulos, Judith Sanchez Ruiz, and Nina Wesemann
